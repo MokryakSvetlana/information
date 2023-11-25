@@ -23,4 +23,4 @@ MS Office, MS Excel, Английский язык, Административн
   по имущественным вопросам;
 - Ведение реестра договоров аренды, входящих/исходящих документов.
 
-![Mone.jpg](..%2FMone.jpg)
+![Диего Веласкес, Пряхи](https://muzei-mira.com/templates/museum/images/paint/priahi-velaskes+.jpg)
